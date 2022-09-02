@@ -1,3 +1,3 @@
 # -HTML-PROJE-
-html proje
+https://alioglumusa.github.io/-HTML-PROJE-/
 
